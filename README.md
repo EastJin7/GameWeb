@@ -1,2 +1,2 @@
-# Eastern-Paradise
+# 東方樂園
 專放沒事寫的小東西
